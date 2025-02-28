@@ -63,7 +63,7 @@ Colfax, LA - 1873
 
 * [Wikipedia - Colfax massacre](https://en.wikipedia.org/wiki/Colfax_massacre)
 
-![The Louisiana Murders—Gathering The Dead And Wounded. Published in Harper's Weekly May 10, 1873, page 397](Colfax-Massacre.jpg "The Louisiana Murders—Gathering The Dead And Wounded. Published in Harper's Weekly May 10, 1873, page 397")
+![Colfax massacre](Colfax-Massacre.jpg "Colfax massacre")
 
 > The Colfax massacre, sometimes referred to as the Colfax riot, occurred on Easter Sunday, April 13, 1873, in Colfax, Louisiana, the parish seat of Grant Parish. An estimated 62–153 Black men were murdered while surrendering to a mob of former Confederate soldiers and members of the Ku Klux Klan. Three White men also died during the confrontation. After the contested 1872 election for governor of Louisiana and local offices, a group of White men armed with rifles and a small cannon overpowered Black freedmen and state militia occupying the Grant Parish courthouse in Colfax. Most of the freedmen were killed after surrendering, and nearly another 50 were killed later that night after being held as prisoners for several hours.
 

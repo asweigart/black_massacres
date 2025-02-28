@@ -27,7 +27,7 @@ New Orleans, LA - 1866
 
 * [Wikipedia - New Orleans massacre of 1866](https://en.wikipedia.org/wiki/New_Orleans_massacre_of_1866)
 
-![Harper's Weekly 1866-08-25 - Murdering negroes in the rear of the Mechanics' Institute](new-orleans-1866.jp "Harper's Weekly 1866-08-25 - Murdering negroes in the rear of the Mechanics' Institute")
+![Harper's Weekly 1866-08-25 - Murdering negroes in the rear of the Mechanics' Institute](new-orleans-1866.jpg "Harper's Weekly 1866-08-25 - Murdering negroes in the rear of the Mechanics' Institute")
 
 > The New Orleans massacre of 1866 occurred on July 30, when a peaceful demonstration of mostly Black Freedmen was set upon by a mob of white rioters, many of whom had been soldiers of the recently defeated Confederate States of America, leading to a full-scale massacre. According to the official report, a total of 38 were killed and 146 wounded, of whom 34 dead and 119 wounded were Black Freedmen. Unofficial estimates were higher.
 
